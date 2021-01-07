@@ -1,0 +1,2 @@
+A red velvet cake can be a delicious dessert for almost any occasion, and it doesn't have to be a hard cake to make either!
+ Simple and full of flavor, this is a showstopping dessert worth sharing with friends.
